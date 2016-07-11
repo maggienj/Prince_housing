@@ -85,7 +85,11 @@ We need members to present this ppt and the website on Sunday. <br>
 If you would like to take part in this AffHousing project, then let me know which task you would like to contribute on.
 
 
+Other Resources:
 More Info is at http://www.princetonnj.gov/affordable/mercer-contacts.html
+
+Application Form:
+http://www.princetonnj.gov/affordable/AffordableHousing_Application.pdf
 
 
 
